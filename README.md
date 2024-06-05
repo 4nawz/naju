@@ -10,5 +10,6 @@ Você pode entrar em contato comigo 📫
 macedot339@gmail.com
 
 @4nawz._
-![](https://images.app.goo.gl/3b2SkkNTYEezz9HYA)
+![](https://tenor.com/bK0UY.gif)
+
 
