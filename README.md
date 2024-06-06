@@ -10,6 +10,6 @@ Você pode entrar em contato comigo 📫
 macedot339@gmail.com
 
 @4nawz._
-![](https://tenor.com/bK0UY.gif)
+![](https://media1.tenor.com/m/nHMPUqYO7sMAAAAC/pingu-mad-stare.gif)
 
 
